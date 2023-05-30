@@ -1,0 +1,1 @@
+# Capstone_1_data_stock_gudang
